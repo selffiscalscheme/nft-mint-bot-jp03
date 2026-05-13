@@ -1,4 +1,4 @@
-# 
+# new nft mint bot | whitelist-bypass + simulation-mode is the best nft mint bot, featuring whitelist-bypass and simulation-mode. Fast, smart, and optimized for NFT trading on
 
 
 
